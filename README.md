@@ -1,1 +1,1 @@
-bagaimana cara memutihkan kulit untuk orang negro
+dayum dayum dayum
